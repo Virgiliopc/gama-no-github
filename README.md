@@ -1,1 +1,1 @@
-Estou o curso incrível, sou iniciante e estou começando do zero. A velocidade está muito acelerada e como nunca tive contato com o conteúdo e prática estou sentindo um pouco de dificuldade mas fora isso está sendo muito incrível e de muito aprendizado. Agradeço a toda a equipe. 
+Este curso é incrível, sou iniciante e estou começando do zero. A velocidade está muito acelerada e como nunca tive contato com o conteúdo e prática estou sentindo um pouco de dificuldade mas fora isso está sendo sensacional e de muito aprendizado. Agradeço a toda a equipe. 
